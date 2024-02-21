@@ -1,1 +1,1 @@
-# # Ilmenauer Schnellschach Turnier 2023
+# Vereinsmeisterschaft 2024
